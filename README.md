@@ -1,0 +1,2 @@
+# sukuna
+Ozodbek
